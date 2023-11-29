@@ -6,10 +6,20 @@
 
 ##### CONTACT
 **Address**: Moscow, Russia
+
+
 **E-mail**: ssleeepwalker@gmail.com
+
+
 **Phone**: +7 (999) 112-81-00
+
+
 **Telegram**: @calljq
+
+
 **Github**: tuna0007
+
+
 **Discord**: t4hr
 
 
